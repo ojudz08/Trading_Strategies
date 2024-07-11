@@ -6,7 +6,7 @@
 
 ## About
 
-[To be updated]
+[To be updated in September 2024]
 
 <h2>Lists</h2>
 
